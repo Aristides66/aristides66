@@ -9,4 +9,4 @@
 - jogar free fire com os amigos (mesmo não sabendo atirar nem passar call🤣)
 - gosto de comer bastante besteira como: pizza pastel salgado refri etc
 ## meu insta👇🏽
-[Instagram](www.instagram.com/ari_neto_04)
+[Instagram](https://www.instagram.com/ari_neto_04)
